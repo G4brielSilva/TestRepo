@@ -3,7 +3,7 @@
 - Gabriel
 - Enzo Rossi
 - Isabelle :)
-- Caio 
+- Caio :)
 
 
 
